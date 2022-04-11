@@ -7,7 +7,7 @@
 
 备用地址1：https://www.nnpapa9.com
 
-备用地址2：http://www.nnpapa8.com
+备用地址2：https://www.zipaifl.com/
 
 备用地址3：https://www.99aip4.com
 
